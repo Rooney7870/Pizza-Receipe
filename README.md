@@ -10,7 +10,8 @@ The receipe for making great pizza
 - 100 g of cheese 
 - 100 g of vegies 
 - 200 g of chillies
-
+- 300 g of beans 
+- 400 g of carrots
 In addition, one doughball needs about 1 dl of water, a pinch of yeast, a bit bigger pinch of salt and flour
 until the dough doesn't stick on the bowl.
 ### The pizza flour
