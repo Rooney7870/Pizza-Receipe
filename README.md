@@ -9,6 +9,7 @@ The receipe for making great pizza
 - 14.1 g of salt
 - 100 g of cheese 
 - 100 g of vegies 
+- 200 g of chillies
 
 In addition, one doughball needs about 1 dl of water, a pinch of yeast, a bit bigger pinch of salt and flour
 until the dough doesn't stick on the bowl.
